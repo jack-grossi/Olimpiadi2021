@@ -11,7 +11,7 @@ E QUESTA DATA NON LA SCORDA PIU NESSUNO MA SOPRATTUTTO IL ROSSONERO, PERCHE QUEL
 
 # ciao sono HELLUS
 
-
+[LINK]https://www.tiermarkt.net/images/listings/2015-01/cane_corso_welpen-1421937902-42-d_pic.jpg
 
 ## Ciaoo sono il Roxx
 

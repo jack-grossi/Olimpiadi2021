@@ -3,7 +3,4 @@ Olimpiadi Siemens
 
 #### Forza Napoli
 ##### Abbiamo un sogno nel cuore
-
-
-
-# ciao sono HELLUS
+#### Pietrasanta è meglio di Viareggio
